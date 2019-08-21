@@ -20,6 +20,8 @@ Good luck ^ - ^
 
 (Remember you must disable the AntiVirus until you can use the program)
 Good luck ^ - ^
+HOW TO USE:
+"https://youtu.be/a7TW03HkhmQ"
 
 Purchase link of the key:
 "https://satoshidisk.com/pay/C7HMUJ"
